@@ -13,9 +13,8 @@
 - Tarkov
 - Another Games
 ## How can I buy?
-- Discord: https://discord.gg/R4z2NxQ4Va 
-- Discord: Argo#5750
-- Discord: Argo#2048
+- Discord: https://discord.gg/TCQ9chtZVa
+- Discord: Argo#2272
 ## Argo Spoofer 
 - https://www.youtube.com/watch?v=Us2iJj84nDw&ab_channel=Argo
 ![2](https://user-images.githubusercontent.com/113839299/190916793-957e24ad-f923-4779-8b5e-7654e4bbe888.png)
